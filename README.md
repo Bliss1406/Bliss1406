@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any digital Marketing related jobs 
 - 📫 How to reach me on igbinewekablessing34@gmail.com
 - 😄 Pronouns: She(Female)
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I didn’t wait for perfect branding—Bliss DE Marketer started with a basic logo, bold ideas, and the will to figure it out along the way."
 
 <!---
 Bliss1406/Bliss1406 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
